@@ -1,0 +1,2 @@
+# GenesAI
+genesis AI: A AI HELPER FOR UNCOPYLCOCKS
